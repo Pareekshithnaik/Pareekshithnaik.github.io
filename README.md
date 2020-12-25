@@ -1,1 +1,0 @@
-# Pareekshithnaik.github.io
